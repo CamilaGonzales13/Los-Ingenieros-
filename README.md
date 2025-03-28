@@ -3,3 +3,4 @@ Somos un grupo prometedor con ganas de superarnos día a día, hallando solucion
 Camila Fernanda Gonzales Larriega
 Yamil Cristian Goin Álvarez
 Anais Nieves Esquivel Verde
+Alfreo Caleb Navarro Vasquez
